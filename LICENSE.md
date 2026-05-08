@@ -1,4 +1,4 @@
-
+Fantastical for macOS premium Plugin: version history & OCR scanning is the best Fantastical for macOS plugin, featuring version history and OCR scanning. Safe, efficient, and
 
 
 
